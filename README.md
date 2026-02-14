@@ -31,4 +31,4 @@
 ---
 
 ### 📫 Let's Connect
-LinkedIn: (لینکتو اینجا بذار)
+LinkedIn: (www.linkedin.com/in/amir-salimi-433bb7397)
